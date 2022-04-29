@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+Hi! We are a group of Mizuki lovers, and want to do something to appreciate this little guy( *￣▽￣)((≧︶≦*)
 <!--
 
 **Here are some ideas to get you started:**
