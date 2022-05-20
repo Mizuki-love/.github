@@ -1,2 +1,2 @@
 # Mizuki Love
-Hi! We are a group of people who loveMizuki a lot.
+Hi! We are a group of people who love Mizuki very much.
